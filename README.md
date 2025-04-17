@@ -7,7 +7,6 @@
     <img src="https://i.ibb.co/5K7Ks6w/zzzz3.gif" alt="Deneme Bonusu Kazan" style="max-width:100%; height:auto; border-radius:8px;">
 </a>
 
-<a href="https://t.me/+0JOgru5ccMkzODNk" title="ResimLink - Resim Yükle"><img src="https://resimlink.com/zxbsQp" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 
 
  🎰 Şansını Yatırımsız Dene!
